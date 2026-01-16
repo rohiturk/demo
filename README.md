@@ -1,3 +1,4 @@
 # demo
 opium opium<br>
-vamp anthem
+vamp hahhhahahhahah
+vamp strength
